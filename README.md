@@ -1,2 +1,2 @@
 # Xhub
-The creater of Renahub and Xyz hub and joined together to make Xhub
+The creater of Renahub and Xyz hub has j joined together to make Xhub
